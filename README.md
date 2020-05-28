@@ -1,0 +1,2 @@
+# thots
+ideas, thoughts
